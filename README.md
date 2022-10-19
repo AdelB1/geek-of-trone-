@@ -1,1 +1,1 @@
-# geek-of-trone-
+# geek-of-throne-
